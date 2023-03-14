@@ -6,3 +6,5 @@ CPF : Não
 
 Experiencia : Simplesmente nada
 
+No fim é tudo fake.
+
